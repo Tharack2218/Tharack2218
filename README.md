@@ -1,4 +1,4 @@
-You sent
+
 # Hi there! 👋 I'm Vemula Ramesh
 
 **Computer Science Engineer | AI/ML Enthusiast | Full-Stack Developer**
