@@ -3,7 +3,7 @@
 
 **Computer Science Engineer | AI/ML Enthusiast | Full-Stack Developer**
 
-📧 vemular79999@gmail.com | 📱 +919966705799 | 📍 Suryapet, Telangana, India
+📧 vemularamesh799@gmail.com | 📱 +919966705799 | 📍 Huzurnagar, Telangana, India
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](http://www.linkedin.com/in/vemula-ramesh7799)
 
